@@ -1,1 +1,1 @@
-# PLB---Informatika
+# PLB-Informatika
